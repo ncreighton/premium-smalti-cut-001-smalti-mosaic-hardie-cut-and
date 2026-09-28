@@ -1,0 +1,2 @@
+# premium-smalti-cut-001-smalti-mosaic-hardie-cut-and
+Smalti cutting technique demands precision, organization, and a proven system—yet most mosaic artists waste hours piecing together fragmented color palettes, cut sizes, and andamento patterns across scattered notes. The Smalti Mosaic &amp; Hardie Cut Andamento Hub eliminates that chaos.  This Notion template is purpose-built for smalti and hardie cutte
